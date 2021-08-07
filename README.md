@@ -2,6 +2,12 @@
 
 ## Cena: 42000pln
 
+## Kontakt: 
+
++ WhatsApp +1 8327065612
++ slawomir.wegrzyn37@gmail.com
++ +48783222240 (przed południem)
+
 ## Podstawowe informacje
 
 + Dokładny opis wersji: [https://samochody.mojeauto.pl/toyota/katalog/toyota_corolla,2013-,3630,sedan_4-drzwiowy,2013-1_6_valvematic_132km_automat_premium_z_pakietami_design_i_comfort_i_tech,187637.html].
